@@ -1,9 +1,10 @@
 - 👋 Hi, I’m @joch-21
-- 👀 I’m interested in Software / Application programming, designing
-- 🌱 I’m currently learning IT
+- 👀 I’m interested in Software / Application programming, designing, System analysis, HR management
+- 🌱 I’m currently an expert in IT, Software and Applications Development, Coordination & Testing
 - 📫 My email: dynamic.co.collaboration@gmail.com
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: Co-Founders & Network Head of CoralCraft Network 
+- ⚡ Fun fact: I'm an International Internet Communities Volunteer & Freelancer, including: 
+- ⚡ Co-Founders & Network Head of CoralCraft Network 
 - ⚡ COO of CCNET.xyz Group | Parent Group of CoralCraft Network
 - ⚡ Founder & CEO of Dynamic Co. Research Development and Administrative Management Organization & Community 
 
