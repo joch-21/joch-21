@@ -4,8 +4,8 @@
 - 📫 My email: dynamic.co.collaboration@gmail.com
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: I'm an International Internet Communities Volunteer & Freelancer, including: 
-- ⚡ Co-Founders & Network Head of CoralCraft Network 
-- ⚡ COO of CCNET.xyz Group | Parent Group of CoralCraft Network
+- ⚡ Co-Founder & Network Head & COO of CoralCraft Network 
+- ⚡ Executive Director of CCNET.xyz Group | Parent Group of CoralCraft Network
 - ⚡ Founder & CEO of Dynamic Co. Research Development and Administrative Management Organization & Community 
 
 <!---
